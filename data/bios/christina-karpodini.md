@@ -9,4 +9,4 @@ She started her music education at her 7 years with classical piano training and
 
 Her compositions have been played in various festivals and conferences around the world (UK, Italy, Mexico, Bosnia and Herzegovina, Greece) and she has proudly curated the soundscapes and sound design for two theatrical productions of Greek Art Theatre (Theatro Technis). 
 
-The last 5 years she is based in London exhibiting and performing a various venues (Horniman museum, A&SM#4.5, Hack and Scratch). 
+The last 5 years she is based in London exhibiting and performing at various venues (Horniman museum, A&SM#4.5, Hack and Scratch). 
